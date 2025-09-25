@@ -3,8 +3,7 @@
 
 
 > 전통주 한 잔 생각 날 때! 👉 https://www.ourculture.co.kr/
-> 
-> 개발팀 노션 👉 https://midnight-mantis-c28.notion.site/c9e10b3922764e92b16d4defebc8721f
+
 
 
 ![Image](https://github.com/user-attachments/assets/11d3a8a5-b64b-4b92-bb66-c7e158aa3e76)
